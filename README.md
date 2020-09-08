@@ -1,1 +1,1 @@
-https://www.naver.com
+## 첫번째 광고 설정 페이지 
