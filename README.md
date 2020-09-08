@@ -1,1 +1,1 @@
-# lease_calculator_ad_config
+https://www.naver.com
